@@ -7,5 +7,6 @@ I'm acquiring Microsoft Azure Fundamentals AZ-900 to enhance my career prospects
 - 📫 I am currently using GitHub to make handbooks, so if you have any tips, please reach me via email.
 - 😄 Pronouns: she/her
 - ⚡ Fun fact: I love collecting tea mugs!
-Check my the inspirational quote for this year --> 
+Check my the inspirational quote for this year -->
+
 ![image alt](https://github.com/donafowokan/donafowokan/blob/main/71sv1aRvPyL.jpg?raw=true)
