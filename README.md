@@ -8,4 +8,4 @@ I'm acquiring Microsoft Azure Fundamentals AZ-900 to enhance my career prospects
 - 😄 Pronouns: she/her
 - ⚡ Fun fact: I love collecting tea mugs!
 Check my the inspirational quote for this year --> 
-![image alt]([https://github.com/donafowokan/donafowokan/commit/463ff7c9874f457ef4ea51bab8ed1d900f316d52#diff-7bd92b7edbbc6647933d9acbfbc13d013dc243dca798287c297eee1c056eb714/](https://github.com/donafowokan/donafowokan/blob/main/71sv1aRvPyL.jpg?raw=true)
+![image alt](https://github.com/donafowokan/donafowokan/commit/463ff7c9](https://github.com/donafowokan/donafowokan/blob/main/71sv1aRvPyL.jpg?raw=true)
